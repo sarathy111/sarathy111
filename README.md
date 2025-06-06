@@ -30,9 +30,9 @@
 
 ## 📫 Connect With Me:
 - 📧 **Email:** [sarathyworkspace@gmail.com](mailto:sarathyworkspace@gmail.com)  
-- 🌐 **LinkedIn:** [linkedin.com/in/sarathy2003](www.linkedin.com/in/sarathy2003
+- 🌐 **LinkedIn:** [linkedin.com/in/sarathy2003](www.linkedin.com/in/sarathy2003)
 )  
-- 💻 **GitHub:** [github.com/sarathy111](https://github.com/sarathy111))
+- 💻 **GitHub:** [github.com/sarathy111](https://github.com/sarathy111)
 
 ---
 
